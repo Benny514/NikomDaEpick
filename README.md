@@ -2,6 +2,7 @@
 - Currently learning Python, C# and C++.
 - I rarely write articles.
 - Founder of NHI
-- Paradox and DogeDoge are cool
+- DogeDoge is chill
+- I love you Paradox (jk ofc)
 
 I'm too lazy to update this
